@@ -1,1 +1,2 @@
-# Project-26-
+Japchae is a very popular Korean dish. It is the number one sought after dish particularly during the Korean festive holidays (e.g. New Year’s day and Harvest festival) but it is also enjoyed on any other common day as well.
+I chose this dish as I like South Korea and it's the favourite dish of my favorite k-pop singer Kim Taehyung.
